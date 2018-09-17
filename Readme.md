@@ -1,4 +1,4 @@
 Gaurav said:
 >:sparkles:Akash is good:sparkles:
->Madhuri is also good
->Baljeet is a doog
+>Madhuri is a chudail
+>:sparkles:Baljeet is a Best:sparkles:
